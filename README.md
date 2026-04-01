@@ -1,2 +1,2 @@
 # browser
-Max Browser was ripped off
+Max Browser was killed off by RED MAX COMPANY I/E
